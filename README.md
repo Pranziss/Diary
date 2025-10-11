@@ -6,3 +6,7 @@ Hi! I'm Franz, this is my first github "project" ig(?), newbie at coding, and in
 ---
 
 so 8-23-2025 naa mga bata and this the longest time naka lappie ko HAHAHAHAHAH hays
+
+---
+
+10-11-2025 naka add edit find sources ko sa akong main project wwhich is a gui mini system HAHA github isop dawg and like makaya raman ni sya samot na nga mo take pa og 2 months like its doable trust. with that said mao nsd ni ag time ata nga maka open ko and tweak shi since most of the time busy jd adios.
