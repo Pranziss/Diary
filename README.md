@@ -10,3 +10,7 @@ so 8-23-2025 naa mga bata and this the longest time naka lappie ko HAHAHAHAHAH h
 ---
 
 10-11-2025 naka add edit find sources ko sa akong main project wwhich is a gui mini system HAHA github isop dawg and like makaya raman ni sya samot na nga mo take pa og 2 months like its doable trust. with that said mao nsd ni ag time ata nga maka open ko and tweak shi since most of the time busy jd adios.
+
+---
+
+12-07-25 HAHAHAHA nahuman nako sa akong gui and hell yeah complete shit ehh later na nako i post ag full basta kay ag gui kay naa na ani mwehe so like 2 projects na ako nagama which is the chatbot, and functioning gui + data. will update them soon perhaps next year
