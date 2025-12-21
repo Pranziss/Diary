@@ -14,3 +14,6 @@ so 8-23-2025 naa mga bata and this the longest time naka lappie ko HAHAHAHAHAH h
 ---
 
 12-07-25 HAHAHAHA nahuman nako sa akong gui and hell yeah complete shit ehh later na nako i post ag full basta kay ag gui kay naa na ani mwehe so like 2 projects na ako nagama which is the chatbot, and functioning gui + data. will update them soon perhaps next year
+
+--- 
+12-21-25 sooooo balik ko sa basics ABAHAHAHAHAHHAHBAHA need ko fundamentals jd like reasoning nako is very high understanding soso pero fundamentals weak af meaning this break bsag 30 mins per day bsag maka sabot lng g najd.. no project till ma g ko sa fundamentals
