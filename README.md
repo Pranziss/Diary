@@ -17,3 +17,6 @@ so 8-23-2025 naa mga bata and this the longest time naka lappie ko HAHAHAHAHAH h
 
 --- 
 12-21-25 sooooo balik ko sa basics ABAHAHAHAHAHHAHBAHA need ko fundamentals jd like reasoning nako is very high understanding soso pero fundamentals weak af meaning this break bsag 30 mins per day bsag maka sabot lng g najd.. no project till ma g ko sa fundamentals
+
+---
+01-03-26 AHAHAHAHAHAHA big dreams big goals for this year naa koy daghan gamunon interesting... goal is upgrade simplebot, optimize nlc, scholarbot. unta makahuman ko ba AHAHHAHAHAHHA AND ABT TO ME FROM THE PAST I BARELY SUDIED THIS BREAK SO IM SORRY busy kau sa laag and events and gaming kay like fck sorry jd bawi rako HAHA mag update ko sa project more features and optimizations till 10 ig unta consistent q  
