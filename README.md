@@ -24,3 +24,5 @@ so 8-23-2025 naa mga bata and this the longest time naka lappie ko HAHAHAHAHAH h
 01-03-26 fucking hell wako ka do shit naa ko tagb and like btw i made like 2 other mini systems last year and shi HAHAHA that was peak one month two mini systems w/ database ykw three since there is mine too whiuch was sososososos heavy so many fucking functions
 ---
 01-04-26 klase najd mga bata ugma and shit lakaw nsd karon like bro grabe kayu ka busy cgeg laag2 pero cge lng last nani ata and ga post nako sa issues para mao to ako flow sa mabuhat puhon and like buhaton nako if dko makatug inig uli is v2 which was the database meaning unta dali2 rato mahuman para naa tay nabuhat karon bakasyon HAHAHAHA ywa like i  swear pag dec ga cge pd laag like pls lock in 5 more days 
+---
+01-05-26 listen HAHAHAHHAHAH SO LIKE SUPPOSEDLY MAG GAMA KO OR OPTIMIZE SA V2 BUT LIKE HMM IDK WHY PERO GA GAMA KOG PORTFOLIO HHAHHAHAHAHAHA ANO JAY JAY NAUN PAHUWAY SAKO AND MO JOG KO LATER 
