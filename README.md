@@ -28,3 +28,5 @@ so 8-23-2025 naa mga bata and this the longest time naka lappie ko HAHAHAHAHAH h
 01-05-26 listen HAHAHAHHAHAH SO LIKE SUPPOSEDLY MAG GAMA KO OR OPTIMIZE SA V2 BUT LIKE HMM IDK WHY PERO GA GAMA KOG PORTFOLIO HHAHHAHAHAHAHA ANO JAY JAY NAUN PAHUWAY SAKO AND MO JOG KO LATER 
 
 01-05-26 yeahhh idk mura kog g kapoy HAHA
+---
+01-07-26 wako ka gama para gahapon pero kay duty tindahan and like ako nabuhat last night till karon was fixing my portfolio HAHAHAHA kay shi boring kau tawon before
