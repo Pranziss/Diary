@@ -30,3 +30,5 @@ so 8-23-2025 naa mga bata and this the longest time naka lappie ko HAHAHAHAHAH h
 01-05-26 yeahhh idk mura kog g kapoy HAHA
 ---
 01-07-26 wako ka gama para gahapon pero kay duty tindahan and like ako nabuhat last night till karon was fixing my portfolio HAHAHAHA kay shi boring kau tawon before
+---
+01-08-26 cge raman kog fix sa portfolio and shit lisoda maning oauth2
