@@ -44,3 +44,5 @@ so 8-23-2025 naa mga bata and this the longest time naka lappie ko HAHAHAHAHAH h
 01-14-26 ywa ning dsa pste ywa wakoi nasabtan amen pste 
 ---
 01-20-26 burnout is real
+---
+01-21-26 HAHA nalingaw nako im lowk locking in
