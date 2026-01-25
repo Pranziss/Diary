@@ -46,3 +46,5 @@ so 8-23-2025 naa mga bata and this the longest time naka lappie ko HAHAHAHAHAH h
 01-20-26 burnout is real
 ---
 01-21-26 HAHA nalingaw nako im lowk locking in
+---
+01-25-26 SON akong dc bot akong pinaka biggest project lowkey since most of my prev project kay mi branch ani HAHAHAHA like akong chatbot is nahimo og dc bot and like the connections from ollama hf etc like damn progress kaau ko i am so goated yet dumb 
